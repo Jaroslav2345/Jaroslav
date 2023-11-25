@@ -1,0 +1,1 @@
+como lekce 3
